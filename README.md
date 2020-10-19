@@ -1,1 +1,1 @@
-# 30-days-pushups
+# 100-pushups
